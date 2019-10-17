@@ -1,2 +1,2 @@
 # Homeboyz-rugby
-## official sports team
+## official sports team fanpage
